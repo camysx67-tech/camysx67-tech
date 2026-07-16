@@ -1,16 +1,18 @@
 olá,eu sou a Camila
 
-bem-vido ao meu perfil!!
+bem-vindo(a) ao meu perfil👋
 
 eu sou a mais auruda do colegio
 
-Estudando programação!!
+💻Estudando programação.
 
-Gosto de gatos._.
+😺Gosto de gatos._.
 
-amo música e Rock!
+🎸amo música e Rock.
 
 Gosto de deenhar.
 
-Gosto da cor azul e roxo.
+Gosto da cor azul e roxo.🩵💜
+
+<img src="https://media.giphy.com/media/LmNwrBhejkK9EFP504/giphy.gif" width="250">
 
