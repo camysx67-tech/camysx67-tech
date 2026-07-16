@@ -10,7 +10,7 @@ eu sou a mais auruda do colegio
 
 🎸amo música e Rock.
 
-Gosto de deenhar.
+Gosto de desenhar.
 
 Gosto da cor azul e roxo.🩵💜
 
