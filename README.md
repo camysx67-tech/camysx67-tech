@@ -2,13 +2,13 @@ olá,eu sou a Camila
 
 bem-vido ao meu perfil!!
 
-eu sou a mais aura do colegio
+eu sou a mais auruda do colegio
 
-Estudando programaçaõ!!
+Estudando programação!!
 
 Gosto de gatos._.
 
-amo musica
+amo música e Rock!
 
 Gosto de deenhar.
 
