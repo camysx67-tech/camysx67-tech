@@ -4,4 +4,6 @@ eu sou a mais aura do colegio
 Estudando programaçaõ!!
 Gosto de gatos._.
 amo musica
-sempre buscando evoluir.
+Gosto de deenhar.
+Gosto da cor azul e roxo.
+
